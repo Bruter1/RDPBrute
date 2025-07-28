@@ -1,6 +1,6 @@
 RDP Brute coded z668
 
-Download: https://u.pcloud.link/publink/show?code=XZlJzL5ZBQ09KmFuNFFB48YMHzjtEpRLTtxX
+Download: https://krakenfiles.com/view/faS8Ymj1u3/file.html
 
 Password: rdpbrute
 
